@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **https://t.me/Ixlos_o63**
 
-- 📫 How to reach me **izzatmatkarimov090@gmail.com**
+- 📫 How to reach me **izzatmatkarimov090@gmail.com** ![Snake](https://profile-readme-generator.com/assets/snake.svg)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
